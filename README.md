@@ -1,4 +1,4 @@
-<center> if you're seeing this, someone besides the host is likely fronting
+<p align="center"> if you're seeing this, someone besides the host is likely fronting
 
 ─────────────────────────────────
 
@@ -17,4 +17,4 @@ please block me if youre proship etc<br>
 𓎟𓎟　　youre fine to ask for front,<br>
 　but sometimes i or others may not share <br>
 be patient either way. most headmates have<br>
-　lots of trouble unmasking, and so do i </center>
+　lots of trouble unmasking, and so do i </p>
