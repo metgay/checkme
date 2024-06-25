@@ -14,7 +14,7 @@
 <p align="center"> 　or endo-supportive
 <br><br>
 
-𓎟𓎟　　youre fine to ask for front,<br>
-　but sometimes i or others may not share <br>
-be patient either way. most headmates have<br>
-　lots of trouble unmasking, and so do i
+<p align="center"> 𓎟𓎟　　youre fine to ask for front,<br>
+<p align="center"> 　but sometimes i or others may not share <br>
+<p align="center"> be patient either way. most headmates have<br>
+<p align="center"> 　lots of trouble unmasking, and so do i
