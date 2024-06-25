@@ -1,3 +1,3 @@
 <p align="center"> if you're seeing this, someone besides the host is likely fronting<br><br>─────────────────────────────────<br><br>𓎟𓎟　　hey! i'm john, i go by he/him primarily<br>default to that if you aren't sure, no they/them<br>i am mentally ill, dont ask for about disorders<br>just know that they affect how i act very often
 <br><br>∿<br><br>𓎟𓎟　　no huge strict byi thing. just no weirdos<br>dont flirt or attempt to frontcall/be 'sourcemates'<br>please block me if youre proship or endogenic
-<br><br>∿<br><br>𓎟𓎟　　youre fine to ask for front,<br>but sometimes i or others may not share<br>please be patient either way; most of my<br>headmates have lots of trouble unmasking
+<br><br>∿<br><br>𓎟𓎟　　youre fine to ask for front,<br>but sometimes i or others may not share<br>please be patient either way; most of my<br>headmates have trouble unmasking
