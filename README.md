@@ -8,9 +8,9 @@ or dont wanna ask. unfortunately im a mentally ill pwdid
 dont ask for my disorders or about my alters. just know,
 that it affects how i act very often
 
-𓎟𓎟 boundaries etc
-more
-more
+𓎟𓎟 i dont have a huge strict rules/byi/dni thing. just no weirdos
+id rather not be flirted with, nor have any attempts at frontcalling/sourcemates
+with this, please block me if you are profic/ship/comship etc or endo-supportive
 
 𓎟𓎟 and all my links or whatever.
 links
