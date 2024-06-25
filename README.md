@@ -13,5 +13,5 @@ with this, please block me if you are profic/ship/comship etc or endo-supportive
 
 𓎟𓎟 if this github is attached, youre fine to ask for front<br>
 or really, ever, but sometimes i may not share that<br>
-be patient if i do, or even dont. lots of my headmates have
+be patient if i do, or even dont. lots of my headmates have<br>
 a lot of trouble unmasking or talking, and so do i
