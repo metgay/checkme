@@ -6,13 +6,13 @@
 <p align="center"> 　default to that if you aren't sure, no they/them<br>
 <p align="center"> i am mentally ill, dont ask for about disorders<br>
 <p align="center"> 　just know that they affect how i act very often
-<br><br>
+<br><br><br>
 
 <p align="center"> 𓎟𓎟　　no huge strict byi thing. just no weirdos<br>
 <p align="center"> 　dont flirt or attempt to frontcall/be 'sourcemates'<br>
 <p align="center"> please block me if youre proship etc<br>
 <p align="center"> 　or endo-supportive
-<br><br>
+<br><br><br>
 
 <p align="center"> 𓎟𓎟　　youre fine to ask for front,<br>
 <p align="center"> 　but sometimes i or others may not share <br>
