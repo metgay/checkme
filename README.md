@@ -3,7 +3,7 @@ if you're seeing this, someone besides the host is likely fronting
 ─────────────────────────────────
 
 𓎟𓎟　　hey! i'm john, i go by he/him primarily<br>
-default to that if you aren't sure<br>
+default to that if you aren't sure, no they/them<br>
 i am mentally ill, dont ask for about disorders<br>
 just know that they affect how i act very often
 <br><br>
