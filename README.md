@@ -10,10 +10,11 @@ i am mentally ill, dont ask for about disorders<br>
 
 𓎟𓎟　　no huge strict byi thing. just no weirdos<br>
 　dont flirt or attempt to frontcall/be 'sourcemates'<br>
-please block me if youre proship etc or endo-supportive
+please block me if youre proship etc<br>
+　or endo-supportive
 <br><br>
 
 𓎟𓎟　　youre fine to ask for front,<br>
 　but sometimes i or others may not share <br>
 be patient either way. most headmates have<br>
-lots of trouble unmasking, and so do i
+　lots of trouble unmasking, and so do i
